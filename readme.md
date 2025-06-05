@@ -7,7 +7,9 @@
 ## Sobre mí
 
 🎯 ¡Hola! Soy un apasionado de la tecnología 🤖 con experiencia en desarrollo de software 💻 y automatización ⚙️.
+
 ✨ Me especializo en la creación de soluciones innovadoras 🧠💡 que mejoran la eficiencia 📈 y la productividad 🚀.
+
 🧬 Actualmente, estoy enfocado en proyectos de inteligencia artificial (IA) 🤯 y automatización de procesos 🔁, llevando la innovación al siguiente nivel 💥.
 
 
