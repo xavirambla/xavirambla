@@ -10,7 +10,9 @@
 
 ✨ Me especializo en la creación de soluciones innovadoras 🧠💡 que mejoran la eficiencia 📈 y la productividad 🚀.
 
-🧬 Actualmente, estoy enfocado en proyectos de inteligencia artificial (IA) 🤯 y automatización de procesos 🔁, llevando la innovación al siguiente nivel 💥.
+😌 Me encanta dar soluciones a los dolores de cabeza 🤕 (¡sí, esos que nadie quiere!), pero prefiero aceptar los retos imposibles 🧗‍♂️💪… aunque me cuesten un poco más 😅.
+
+🧬 Actualmente, estoy enfocado en proyectos de inteligencia artificial (IA) 🤯 y automatización de procesos 🔁, llevando la innovación al siguiente nivel 💥🚀💡.
 
 
 ## Contacto
