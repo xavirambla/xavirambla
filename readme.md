@@ -14,6 +14,6 @@ Soy un apasionado de la tecnología con experiencia en desarrollo de software y 
 
 - **Sitio Web**: [xavirambla.net](http://xavirambla.net)
 - **LinkedIn**: [linkedin.com/in/xavirambla/](https://www.linkedin.com/in/xavirambla/)
-- **Email**: [xavirambla@example.com](mailto:xavirambla@example.com)
+- **Email**: [xavirambla@yahoo.es](mailto:xavirambla@yahoo.es)
 
 ¡Gracias por visitar mi perfil! Estoy abierto a colaboraciones y siempre en busca de nuevos desafíos. 🚀
